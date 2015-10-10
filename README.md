@@ -1,2 +1,0 @@
-# mehmetcatikkaya.github.io
-blog
